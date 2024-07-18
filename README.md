@@ -1,0 +1,1 @@
+This online shopping website is designed to provide a seamless and enjoyable shopping experience for users.<br> With a wide range of products across various categories, the platform connects customers with their favorite brands and unique items at competitive prices.
